@@ -2,4 +2,4 @@
 
 [импорт](https://disk.yandex.ru/i/5u0WU3d3VaGHkQ)
 
-[Детали](https://disk.yandex.ru/d/S-cBQ4eMJNoB5g)
+[Детали]([https://disk.yandex.ru/d/S-cBQ4eMJNoB5g](https://disk.yandex.ru/d/QjiWuCvdVeoWVw))
